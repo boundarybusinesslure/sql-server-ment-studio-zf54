@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://boundarybusinesslure.github.io/sql-server-ment-studio-zf54/ ) |
  |---------------------|----------------------:|
 
 
